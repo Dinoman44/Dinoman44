@@ -1,7 +1,5 @@
 ## This is Dinoman44
 
-More people know my username than my real name, and thats no surprise - "Dinoman44" is iconic.
-
 
 
 <!---
